@@ -2,3 +2,5 @@
 
 Лушня К.К, доц., д-р філософії, PhD Єгошкін Д. І.
 Дніпровський національний університет імені Олеся Гончара, Україна, Дніпро
+
+<img width="859" height="628" alt="Screenshot 2025-10-28 at 22 26 10" src="https://github.com/user-attachments/assets/0e31a5ed-a394-49dc-a90e-a0c5590c9824" />
